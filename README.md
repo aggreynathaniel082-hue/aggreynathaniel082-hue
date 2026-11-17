@@ -52,4 +52,5 @@ Working-student positions, internships and graduate roles in **sustainable mobil
 ## 📫 Contact
 
 - LinkedIn: [Nathaniel Takyi Aggrey](https://www.linkedin.com/in/nathaniel-aggrey-766a6721b)
-- Email: your.email@example.com
+- Email: aggreynathaniel082@gmail.com /100004784@stud.srh-university.de
+- 
