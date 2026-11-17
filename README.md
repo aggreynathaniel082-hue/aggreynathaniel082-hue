@@ -1,4 +1,3 @@
-[README_profile_EN_DE.md](https://github.com/user-attachments/files/34974718/README_profile_EN_DE.md)
 
 # Hi, I'm Nathaniel Takyi Aggrey 👋
 
